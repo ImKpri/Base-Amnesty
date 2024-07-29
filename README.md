@@ -1,5 +1,5 @@
 # Base-Amnesty
-Fichier ressources : [https://mega.nz/file/MMln0BSI#CJUy4vxChF3Olp9DArwnXLWtzTOj9pbHPNWVY1WvzGI](https://mega.nz/file/QEkGxTZA#teWtIen_smTs7nGPkG5I8dL32LqiUPc8H5eRI_mdtpU)
+Fichier ressources : https://mega.nz/file/cMlHwADR#ThUItEl2RxCXUhcS1j1i41VnWIEre9vMX_HpvAFiCYE
 (Je précise que la base n'etait pas terminé, Creator, magasin de vet et quelque truc a droite a gauche)
 Base amnesty FiveM Bisous Know petit pd !
 Backdoor des clients mais quelle idée enfinnn
