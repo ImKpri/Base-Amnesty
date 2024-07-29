@@ -1,4 +1,5 @@
 # Base-Amnesty
+Fichier ressources : https://mega.nz/file/MMln0BSI#CJUy4vxChF3Olp9DArwnXLWtzTOj9pbHPNWVY1WvzGI
 Base amnesty FiveM Bisous Know petit pd !
 Backdoor des clients mais quelle idée enfinnn
 Meme plus besoin de parler regarder les sreens, tu viens me sucer pour dev pour toi et au final c'est moi qui ne sais pas dev
